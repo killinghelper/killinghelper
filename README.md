@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+A man who likes to draw and is crazy about cars.
 <!--
 **killinghelper/killinghelper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
